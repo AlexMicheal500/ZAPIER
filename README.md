@@ -6,3 +6,6 @@ Then I followed the links
 https://www.youtube.com/watch?v=kVXwnD3n1y0
 https://www.youtube.com/watch?v=bKb2vseurao
 https://www.youtube.com/watch?v=pomZqhaKqdc
+
+Learn  "How To Publish Instagram Posts Automatically To Facebook, Twitter, Linkedin and Pntrst"
+https://www.youtube.com/watch?v=WZLtISeVnXw
